@@ -3,7 +3,8 @@
 
 
 *I'd become fucking destitute before I'd be your man .*
-<img width="736" height="245" alt="image" src="https://github.com/user-attachments/assets/1e60fa4b-17ba-440e-ab29-f2b9fede6078" />
+<img width="736" height="245" alt="image" src="https://github.com/user-attachments/assets/48f45312-684b-4008-9845-0dffbb0344c5" />
+
 
 
 ﹌﹌﹌﹌﹌﹌﹌﹌
@@ -36,7 +37,9 @@ honestly  nothing but please avoid saying problematic stuff and some other stuff
 
 ✦   i'm usually seen in these skins ,,
 
-<img width="308" height="370" alt="image" src="https://github.com/user-attachments/assets/b2529f8e-6f4f-4785-8203-df6f3cf60958" /> <img width="316" height="378" alt="image" src="https://github.com/user-attachments/assets/1c7d12c5-fa86-4f52-9184-aa8a14b7c4f0" />
+<img width="329" height="380" alt="image" src="https://github.com/user-attachments/assets/d1fe1aa7-f37e-4b79-82f9-a48bb7727d1f" /> <img width="316" height="378" alt="image" src="https://github.com/user-attachments/assets/a96d79c5-0995-47e6-9a92-15a85d42cf3d" />
+
+
 
 ✦   so say hi if you see me! >q<
 
