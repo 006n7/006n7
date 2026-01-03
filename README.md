@@ -47,8 +47,8 @@ honestly  nothing but please avoid saying problematic stuff and some other stuff
 
 ⠀·⠀ i brag about a lot of things and i seek for attention a lot, currently as of writing this in this time, i'm sort of mentally unstable and i have a lot of narcissism in my mind brah PLZZ dont kill me PLZZ
 
-> my pt tonetags or smth
+> extra info
 
-⠀·⠀ i love c+h and int!!  ywah tahts it if u see me with dniuf or dni it means im lowkey pissed  -_-
+⠀·⠀ i love c+h and int!!  ,,  but if u see me with dniuf or dni it means im lowkey pissed  -_-  also a taken person zzz i love [notnamedropping] -u-
 
 ﹌﹌﹌﹌﹌﹌﹌﹌
