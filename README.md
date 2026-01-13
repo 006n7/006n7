@@ -49,6 +49,6 @@ honestly  nothing but please avoid saying problematic stuff and some other stuff
 
 > extra info
 
-⠀·⠀ i love c+h and int!!  ,,  but if u see me with dniuf or dni it means im lowkey pissed  -_-  also a taken person zzz i love [notnamedropping] -u-
+⠀·⠀ i love c+h and int!!  ,,  but if u see me with dniuf or dni it means im lowkey pissed [also DNTUF. DNTUF. DNTUF. DNTUF. UNLESS I SAY SO. UNLESS I SAY SO] -_-  also a taken person zzz i love [notnamedropping] -u-
 
 ﹌﹌﹌﹌﹌﹌﹌﹌
