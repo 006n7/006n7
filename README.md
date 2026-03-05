@@ -11,13 +11,13 @@
 
 ⸝⸝
 
-⠀✦ ⠀name: ame  or skinname/butterballs!!
+⠀✦ ⠀name: ame  or skinname!!
 
 ⠀⠀pronouns: any (preferably they/them but any really if ur close w/ me lalala)
 
 ⠀·⠀ age: minor  (9/26 is my birthday!!)
 
-⠀⠀gender: pangender
+⠀⠀gender: agender
 
 ⠀✦⠀ sexuality: pansexual 
 
